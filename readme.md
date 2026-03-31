@@ -1,4 +1,4 @@
-[Teny gasy](https://josiayvan.github.io/news/actu-gasy.md)
+[Teny gasy](https://josiayvan.github.io/news/actu-gasy)
 
 # Le point sur la situation, mardi 31 mars à 14 heures
 

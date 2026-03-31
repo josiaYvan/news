@@ -1,4 +1,4 @@
-# Fintina ny toe-draharaha, Talata 31 Martsa amin’ny 2 ora tolakandro
+# Fintina ny toe-draharaha 
 
 * **Nisy andiana fanafihana namely toerana maro tao Iran ny Talata**, ka isan’izany ny orinasa fanalana sira amin’ny rano ao amin’ny nosy Qeshm (ao amin’ny andilan-dranomasina Hormuz) izay tsy afaka miasa intsony.
 

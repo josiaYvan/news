@@ -1,6 +1,6 @@
 [Teny gasy](https://josiayvan.github.io/news/actu-gasy)
 
-# Le point sur la situation, mardi 31 mars à 14 heures
+# Bilan
 
 - **Une série de frappes a touché mardi plusieurs sites en Iran, et notamment mis hors service une usine de désalinisation de l’île de Qeshm, située dans le détroit d’Ormuz.** 
     -  D’autres frappes ont aussi touché un site d’une des plus grandes entreprises pharmaceutiques d’Iran, qui produit des anesthésiques et des médicaments contre le cancer.

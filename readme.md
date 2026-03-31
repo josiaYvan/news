@@ -33,7 +33,9 @@ Les discussions entamées avec l’Iran « sont bien réelles, elles sont en co
 L’armée israélienne dit avoir effectué plus de 230 bombardements en Iran au cours des dernières vingt-quatre heures.
 Parmi les sites pris pour cibles figurent des pas de tir de missiles *« prêts au lancement »* et des usines d’armement, précise-t-elle.
 
-[Israel bombarde 230 fois Iran](https://videoidf.azureedge.net/ec1e5934-c203-4e7c-b350-be27225053f9)
+<video controls width="600">
+  <source src="https://videoidf.azureedge.net/ec1e5934-c203-4e7c-b350-be27225053f9" type="video/mp4">
+</video>
 
 ### POSITION DE LA FRANCE SUR LES SURVOLS D'AVIONS SUR SON TERRITOIRE
 

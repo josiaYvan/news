@@ -34,10 +34,15 @@ Fiara iray no lasibatry ny fanafihana nataon’ny tafika Israeliana tamin’ny a
 
 Nisy fipoahana lehibe telo tao Beirut, araka ny tatitry ny mpanao gazetin’ny **AFP**.
 
+![alt text](https://img.lemde.fr/2026/03/31/0/0/0/0/994/0/75/0/5a6a230_ftp-1-bzhk6dh8byu2-5647825-01-06.jpg)
+![alt text](https://img.lemde.fr/2026/03/31/0/0/0/0/994/0/75/0/82f3f06_ftp-1-hvdx2xutrjnr-e2610b4737874f79ac055cd7ad3377bd-0-25c424f6cf384be5a0d0809bab8610de.jpg)
+![alt text](https://img.lemde.fr/2026/03/31/0/0/0/0/994/0/75/0/602c02f_ftp-1-fbvnczkfa94a-5647601-01-06.jpg)
+![alt text](https://img.lemde.fr/2026/03/31/0/0/0/0/994/0/75/0/63dcd60_ftp-1-uufulk4lu2hz-2026-03-31t224227z-803650690-rc2xfkawl76t-rtrmadp-3-iran-crisis-lebanon-israel-strike.JPG)
+
 
 - ### Trump manamafy fa hiala « tsy ho ela » amin’i Iran i Etazonia, afaka herinandro vitsivitsy
 
-Nilaza i Donald Trump fa hiala tsy ho ela amin’i Iran ny Etazonia. *« Tsy maintsy mandao an’i Iran aho, ary ho atao tsy ho ela izany – amin’ny herinandro roa, angamba telo »*, hoy izy namaly fanontaniana mikasika ny fiakaran’ny vidin-tsolika.  
+Nilaza i Donald Trump fa **hiala tsy ho ela** amin’i Iran ny Etazonia. *« Tsy maintsy mandao an’i Iran aho, ary ho atao tsy ho ela izany – amin’ny herinandro roa, angamba telo »*, hoy izy namaly fanontaniana mikasika ny fiakaran’ny vidin-tsolika.  
 
 Nampiany fa tsy manan-danja ny fifanarahana amin’i Iran, na hisy na tsia.  
 
@@ -51,7 +56,7 @@ Nampiany fa tsy manan-danja ny fifanarahana amin’i Iran, na hisy na tsia.
 
 - ### ADY "MITOHY", hoy i ISRAELY
 
-Nanamafy ny praiminisitra **Benjamin Nétanyahou** fa hanohy “hamotika ny fitondrana mpampihorohoro” Iranianina i Israely. Nilazany fa tsy mbola vita ny ady ka mbola hanitatra ny faritra fiarovana izy amin’ny sisin-taniny, any Gaza, Syria ary Libanona.
+Nanamafy ny praiminisitra **Benjamin Nétanyahou** fa hanohy *“hamotika ny fitondrana mpampihorohoro”* Iranianina i Israely. Nilazany fa tsy mbola vita ny ady ka mbola hanitatra ny faritra fiarovana izy amin’ny sisin-taniny, any Gaza, Syria ary Libanona.
 
 - ### IRAN MILAZA FA TE "HAMPITSATRA" NY ADY
 

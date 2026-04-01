@@ -26,9 +26,7 @@ Donald Trump dia hiresaka amin’ny firenena amin’ny alin’ny Alarobia momba 
 - ### Libanona : Fanafihan’ny tafika an’habakabaka Israeliana nitifitra fiara iray atsimon’i Beirut  
 Israel nanao fanambaràna fa nandrava “komandy ambony momba ny Hezbollah” sy “mpampihorohoro avo lenta” tao Beirut izy.
 
-<video controls width="600">
- <source src="https://fr.euronews.com/embed/2882853" type="video/mp4">
-</video>
+<iframe src="https://fr.euronews.com/embed/2882853" width="640" height="360" frameborder="0" allowfullscreen></iframe>
 
 Fiara iray no lasibatry ny fanafihana nataon’ny tafika Israeliana tamin’ny arabe lehibe atsimon’i Beirut, araka ny tatitry ny masoivohom‑baovao ofisialin’i Libanona. Maro ny balafomanga nataon’ny drôna Israeliana no nikendry ilay fiara, ary tonga teny an-toerana avy hatrany ny fiara mpamonjy voina sy ny mpamono afo.  
 
@@ -79,9 +77,7 @@ Nanambara ny **Gardiens de la Révolution** fa hanafika orinasa amerikana izy ra
 
 - ### Fanafihan’ny tafika amerikana niteraka baomba goavana teny amin’ny lanitr’i Ispahan, any Iran
 
-<video controls width="600">
-  <source src="https://geo.dailymotion.com/player.html?video=xa3rqeu" type="video/mp4">
-</video>
+<iframe src="https://geo.dailymotion.com/player.html?video=xa3rqeu" width="640" height="360" frameborder="0" allowfullscreen></iframe>
 
 - ### Fanafihan-drivotra Israeliana nitifitra fiara iray tamin’ny arabe lehibe atsimon’i Beirut  
 <img src="https://photos.tf1info.fr/images/383/215/une-frappe-israelienne-sur-un-immeuble-dans-la-banlieue-sud-de-beyrouth-le-31-mars-2026-b83e15-0@1x.avif" alt="Fanafihana Israeliana Beyrouth" width="600">

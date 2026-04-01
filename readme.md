@@ -1,3 +1,82 @@
 [Teny gasy](https://josiayvan.github.io/news/actu-gasy)
 
 # Actualités du jours (01 Avril 2026)
+
+- ### La france soutient LIBAN
+
+- ### Le président américain a également déclaré : 
+
+*« Si la France ou un autre pays veut avoir son pétrole ou son gaz, ils iront tout droit dans le détroit d’Ormuz (…) et ils se débrouilleront seuls. Je pense que ce sera un endroit très sûr en réalité, mais nous n’avons rien à voir avec ça. »*
+
+- ### Le ministre des affaires étrangères iranien 
+a réfuté l’existence de négociations avec les Etats-Unis. Sa déclaration fait suite à des propos du ministre de la défense américain qui avait affirmé un peu plus tôt que les prochains jours seraient *« décisifs »* et assuré que les discussions avec l’Iran *« se renforcent ».*
+
+- ### L’aéroport de Koweït attaqué par des drones, incendie au niveau de réservoirs de carburant
+
+Des drones d’attaque ont visé des réservoirs de carburant de l’aéroport international de Koweït, provoquant un incendie, a annoncé mercredi l’agence de presse nationale KUNA, citant l’aviation civile. « L’aéroport international de Koweït a été soumis à des attaques manifestes de drones lancés par l’Iran et les factions armées qu’il soutient », a rapporté l’agence, citant le porte-parole de l’aviation civile nationale, Abdullah Al-Rajhi. D’après lui, « des réservoirs de stockage de carburant […] ont été ciblés, provoquant un grand incendie sur place ». Aucune victime n’est à signaler, de même source.
+
+- ### Trump va s’adresser à la nation mercredi soir, annonce la Maison-Blanche
+
+Donald Trump va s’adresser à la nation, mercredi soir, au sujet de l’Iran, a annoncé la porte-parole de la Maison Blanche mardi sur X. « Demain soir à 21 heures [heure locale, 3 heures à Paris], le président Trump va s’adresser à la nation pour donner de nouvelles informations importantes sur l’Iran », a écrit Karoline Leavitt.
+
+- #### HUIT MORTS AU SUD-LIBAN
+
+- ### Liban : une frappe aérienne israélienne cible une voiture au sud de Beyrouth
+Israël annonce avoir frappé à Beyrouth un haut commandant du Hezbollah ainsi qu’un «terroriste» de haut rang
+
+<div style="position:relative;padding-bottom:56.25%;height:0;overflow:hidden;"><iframe src="https://fr.euronews.com/embed/2882853"style="width:100%; height:100%; position:absolute; left:0px; top:0px; overflow:hidden; border:none;"allowfullscreentitle="Dailymotion Video Player"allow="web-share"></iframe></div>
+
+Une voiture a été la cible d’une frappe israélienne sur une grande route au sud de Beyrouth, a annoncé mardi soir l’agence de presse officielle du Liban. Ce véhicule a été visé par plusieurs missiles tirés par un drone israélien, a rapporté un correspondant de l’Agence nationale d’information, précisant que des ambulances et des pompiers s’étaient rendus sur place.
+
+Trois fortes explosions se sont produites à Beyrouth, selon des journalistes de l'AFP.  
+
+![alt text](https://img.lemde.fr/2026/03/31/0/0/0/0/994/0/75/0/5a6a230_ftp-1-bzhk6dh8byu2-5647825-01-06.jpg)
+![alt text](https://img.lemde.fr/2026/03/31/0/0/0/0/994/0/75/0/82f3f06_ftp-1-hvdx2xutrjnr-e2610b4737874f79ac055cd7ad3377bd-0-25c424f6cf384be5a0d0809bab8610de.jpg)
+![alt text](https://img.lemde.fr/2026/03/31/0/0/0/0/994/0/75/0/602c02f_ftp-1-fbvnczkfa94a-5647601-01-06.jpg)
+![alt text](https://img.lemde.fr/2026/03/31/0/0/0/0/994/0/75/0/63dcd60_ftp-1-uufulk4lu2hz-2026-03-31t224227z-803650690-rc2xfkawl76t-rtrmadp-3-iran-crisis-lebanon-israel-strike.JPG)
+
+- ### Trump réaffirme que les États-Unis vont «quitter» l’Iran «très bientôt», dans deux ou trois semaines
+
+Donald Trump a déclaré mardi que les Etats-Unis allaient **« quitter »** l’Iran **« très bientôt »**. *« Tout ce que j’ai à faire, c’est partir de l’Iran, et nous le ferons très bientôt et [les prix du carburant] dégringoleront »*, a affirmé le président américain en réponse à une question sur la hausse des prix de l’essence. Il a ensuite évoqué un délai de **« deux, peut-être trois semaines »**.
+
+Le président américain a aussi affirmé que la conclusion ou non d’un accord avec l’Iran était « sans importance », après avoir dit lundi « entrevoir un accord » avec de nouveaux dirigeants iraniens, qu’il n’a pas nommés.
+
+*« Nous partirons très bientôt. Et si la France ou un autre pays veut avoir son pétrole ou son gaz, ils iront tout droit dans le détroit d’Ormuz […] et ils se débrouilleront seuls. Je pense que ce sera un endroit très sûr en réalité, mais nous n’avons rien à voir avec ça »*, a-t-il aussi dit.
+
+- Le pape Léon XIV a déclaré espérer que le président américain, Donald Trump, *« cherche une porte de sortie »* à la guerre meurtrière au Moyen-Orient, renouvelant ses appels à la paix à quelques jours de Pâques.
+
+**« On m’a dit que le président Trump avait récemment déclaré vouloir mettre fin à la guerre. J’espère qu’il cherche une porte de sortie »,** a déclaré le pape américain aux journalistes en début de soirée à la sortie de la résidence papale de Castel Gandolfo, près de Rome. « J’espère qu’il cherche un moyen de réduire la violence et les bombardements, ce qui contribuerait grandement à apaiser la haine qui se propage et ne cesse de croître au Moyen-Orient et ailleurs », a-t-il ajouté
+
+- #### Après la mort de deux casques bleus indonésiens, l’armée israélienne affirme qu’aucune de ses troupes « n’était présente sur place »
+
+- ### LA GUERRE "CONTINUE", SELON ISRAËL 
+
+Israël va "continuer d'écraser le régime terroriste" iranien, a martelé le Premier ministre israélien, affirmant que la guerre déclenchée il y a plus d'un mois par son pays n'était "pas terminée". "La campagne n'est pas terminée (...) nous allons continuer d'écraser le régime terroriste, nous renforcerons les zones de sécurité autour de nous et nous atteindrons nos objectifs", a affirmé Benjamin Netanyahou en faisant référence aux territoires où l'armée israélienne est désormais déployée au-delà de ses frontières, à Gaza, en Syrie et au Liban.
+
+- ### L'IRAN DIT VOULOIR "METTRE FIN" À LA GUERRE
+
+Le président iranien, **Massoud Pezeshkian**, a déclaré que l'Iran avait la volonté ***"de mettre fin"*** à la guerre contre Israël et les États-Unis, mais voulait des garanties pour "empêcher la répétition de l'agression". *"Nous avons la volonté nécessaire pour mettre fin"* au conflit, qui est entré dans sa cinquième semaine, "**à condition que** les conditions essentielles soient réunies, en particulier les garanties nécessaires pour empêcher la répétition de l’agression", a affirmé le président iranien, lors d'une conversation téléphonique avec le président du Conseil européen Antonio Costa.
+
+- ISRAËL RESPONSABLE DE LA MORT D'UN CASQUE BLEU, SELON UNE SOURCE
+
+- ### La réponse de la france face au repproche de Trump
+
+Selon le journal Le Monde(nouvelle fenêtre), la France n’interdit pas tous les survols d’avions militaires à destination du Moyen-Orient depuis le début de la guerre. Selon une source diplomatique au journal, "les aéronefs américains sont autorisés à survoler le territoire français dans le respect des règles internationales de survol des aéronefs d’État". Chaque vol serait ainsi étudié au cas par cas.
+
+La France *"n'a pas changé de position"* sur le survol de son territoire et *"s'étonne"* des reproches de Donald Trump, affirme l'Élysée à la presse. *"Nous confirmons cette décision qui est conforme à la position française depuis le début de ce conflit. La France n'a pas changé de position depuis le premier jour"*, a ajouté la présidence française en réponse au président américain qui estime que *"la France a été très peu coopérative"* en empêchant à l'US Army de survoler son territoire. 
+
+- ### MENACES IRANIENNES
+
+Les Gardiens de la révolution menacent de viser des entreprises américaines si d'autres responsables sont tués. Ces derniers ont publié une liste de 18 entreprises américaines, dont Google, Apple, Meta ou encore Tesla, affirmant que ces sociétés devraient "s'attendre à la destruction" de leurs locaux "dans tous les pays de la région" en représailles à tout nouvel "assassinat en Iran", à partir de mercredi 20h, heure de Téhéran. 
+
+
+- ### Une frappe américaine provoque une énorme boule de feu dans le ciel d'Ispahan, en Iran
+<div style="position:relative;padding-bottom:56.25%;height:0;overflow:hidden;"><iframe src="https://geo.dailymotion.com/player.html?video=xa3rqeu"style="width:100%; height:100%; position:absolute; left:0px; top:0px; overflow:hidden; border:none;"allowfullscreentitle="Dailymotion Video Player"allow="web-share"></iframe></div>
+
+- ### Une frappe aérienne israélienne cible une voiture sur une grande route au sud de Beyrouth
+<img src="https://photos.tf1info.fr/images/383/215/une-frappe-israelienne-sur-un-immeuble-dans-la-banlieue-sud-de-beyrouth-le-31-mars-2026-b83e15-0@1x.avif" alt="Frappe israélienne Beyrouth" width="600">
+
+    - BILAN: Au moins 1.268 personnes ont été tuées dans des frappes israéliennes au Liban depuis le 2 mars, selon un bilan du ministère libanais de la Santé cité par L'Orient-Le-Jour(nouvelle fenêtre). Parmi les victimes, on compte au moins 125 enfants, selon cette même source.>
+
+- Benyamin Nétanyahou assure qu’il va « continuer d’écraser » le régime iranien.
+- La France «s’étonne» des reproches de Trump sur l’interdiction de survol de son territoire

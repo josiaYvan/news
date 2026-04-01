@@ -24,7 +24,9 @@ Donald Trump va s’adresser à la nation, mercredi soir, au sujet de l’Iran, 
 - ### Liban : une frappe aérienne israélienne cible une voiture au sud de Beyrouth
 Israël annonce avoir frappé à Beyrouth un haut commandant du Hezbollah ainsi qu’un «terroriste» de haut rang
 
-<div style="position:relative;padding-bottom:56.25%;height:0;overflow:hidden;"><iframe src="https://fr.euronews.com/embed/2882853"style="width:100%; height:100%; position:absolute; left:0px; top:0px; overflow:hidden; border:none;"allowfullscreentitle="Dailymotion Video Player"allow="web-share"></iframe></div>
+<video controls width="600">
+  <source src="https://fr.euronews.com/embed/2882853" type="video/mp4">
+</video>
 
 Une voiture a été la cible d’une frappe israélienne sur une grande route au sud de Beyrouth, a annoncé mardi soir l’agence de presse officielle du Liban. Ce véhicule a été visé par plusieurs missiles tirés par un drone israélien, a rapporté un correspondant de l’Agence nationale d’information, précisant que des ambulances et des pompiers s’étaient rendus sur place.
 
@@ -71,7 +73,10 @@ Les Gardiens de la révolution menacent de viser des entreprises américaines si
 
 
 - ### Une frappe américaine provoque une énorme boule de feu dans le ciel d'Ispahan, en Iran
-<div style="position:relative;padding-bottom:56.25%;height:0;overflow:hidden;"><iframe src="https://geo.dailymotion.com/player.html?video=xa3rqeu"style="width:100%; height:100%; position:absolute; left:0px; top:0px; overflow:hidden; border:none;"allowfullscreentitle="Dailymotion Video Player"allow="web-share"></iframe></div>
+
+<video controls width="600">
+  <source src="https://geo.dailymotion.com/player.html?video=xa3rqeu" type="video/mp4">
+</video>
 
 - ### Une frappe aérienne israélienne cible une voiture sur une grande route au sud de Beyrouth
 <img src="https://photos.tf1info.fr/images/383/215/une-frappe-israelienne-sur-un-immeuble-dans-la-banlieue-sud-de-beyrouth-le-31-mars-2026-b83e15-0@1x.avif" alt="Frappe israélienne Beyrouth" width="600">

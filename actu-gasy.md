@@ -4,34 +4,104 @@
 
 # Vaovao anio (02 Avril 2026)
 
-* ### Donald Trump dia nanambara fa nahazo fandresena « manapaka » sy « mahery vaika » i Etats-Unis,
+* ### FIPOAHANA TENY AMBONY Jérusalem
 
-nilaza fa « manakaiky ny fanatanterahana » ny tanjony any Iran ilay firenena, tao anatin’ny lahateniny voalohany ho an’ny firenena hatramin’ny nanombohan’ny ady.
+Nisy fipoahana re teny ambonin’i Jérusalem taorian’ny fanairana momba ny balafomanga avy any Iran, araka ny hitan’ny mpanao gazety avy amin’ny AFP.
 
-* ### « Hanafika mafy dia mafy [ny Iraniana] izahay ao anatin’ny roa ka hatramin’ny telo herinandro ho avy.
+* ### Ho an’i Pékin, ny fanafihan’i Etats-Unis sy Israël an’i Iran dia « fanitsakitsahana mazava ny lalàna iraisam-pirenena »
 
-Hampiverina azy ireo amin’ilay vanim-potoana fahiny (age de pierre) izay heverinay fa tokony hisy azy izy ireo », hoy hatrany ny filoha amerikana.
+Araka ny filazan’ny minisitry ny raharaham-bahiny sinoa, Wang Yi.
 
-* ### Ny tafika iraniana kosa dia nampanantena fanafihana « mahery vaika » hanohitra an’i Etats-Unis sy Israël,
+* ### VERY FITOKISAN’NY VAHOAKA IRANIANA VE I Donald Trump ?
 
-nilaza fa hitohy ny ady « mandra-pahazoan’izy ireo fahafaham-baraka, henatra, fanenenana tanteraka ary faharesena », ho setrin’ny lahatenin’i Trump.
+Tamin’ny fandaharana 20 ora tao amin’ny TF1 omaly alina, ny ambasadaoron’i Iran ao Paris, Mohammad Amin-Nejad, dia nilaza fa niteraka vokatra mifanohitra amin’ny nandrasan’ireo mpitondra roa tonta ny daroka baomba nataon’i Israël sy Etazonia.
 
-* ### Ny lahatenin’i Trump dia nandrava ny fanantenan’ny tsena ara-bola sy solika
+Tao anatin’ny fanambarana manaitra vaovao, Donald Trump dia nilaza fa te “hampiverina an’i Iran amin’ny vanim-potoana fahiny (age de pierre)”. Nampiasa ny hatezeran’ny vahoaka iraniana tamin’ny fitondrana mollah ihany koa anefa i Etazonia hanamarinana ity ady ity.
 
-fa hifarana haingana ny ady ary hisokatra indray ny détroit d’Ormuz. Nitombo be ny vidin’ny solika Brent avy any Ranomasina Avaratra, izay marika iraisam-pirenena, ka nihoatra ny 105 dolara indray. Nidina indray koa ny tsena ara-bola any Azia, na dia efa niakatra aza teo aloha noho ny fanantenana.
+Ankehitriny, “eo am-pahaverezan’ny fitokisan’ny vahoaka iraniana” i Trump, hoy ny fanadihadiana nataon’i Meriem Amellal ao amin’ny LCI.
 
-* ### Ny Iran kosa dia nanameloka ny fitakiana « tafahoatra sy tsy mitombina »
+* ### FIHALEFAN’NY VOLA yuan chinois
 
-nataon’i Etats-Unis mba hampitsaharana ny ady, sady nandà fa misy fifampiraharahana momba ny fampitsaharana ady.
+Ary raha toa ka noho ny ady any Ukraine sy Iran dia mety ho lasa mariky ny fitoniana ho an’ny mpampiasa vola ny yuan manoloana ny dolara amerikana?
 
-* ### Ny tafika israeliana dia nilaza fa nahasakana andiana tifitra balafomanga efatra
+“Ho hita ao anatin’ny roa volana ny vokany”, hoy Mikaa Blugeon-Mered tao amin’ny LCI.
 
-avy any Iran tao anatin’ny enina ora. Olona efatra no naratra kely, araka ny fampitam-baovao.
+* ### Israël MANDRAHONA NY Hezbollah
 
-* ### Ny Hezbollah any Liban kosa dia nilaza fa nanao fanafihana roketra
+Ny minisitry ny fiarovana israeliana Israël Katz dia nandrahona fa hampandoa “vidiny lafo” ny Hezbollah noho ny fanamafisana ny fanafihana nandritra ny Paska jiosy.
 
-sy drôna tany avaratr’i Israël, nikendry miaramila sy tanàna israeliana iray.
+* ### Ny ady any Moyen-Orient dia mety hisy fiantraikany mivantana amin’ny asa fampihorohoroana
 
-* ### Ny masoivoho amerikana ao Bagdad dia nampitandrina ny olom-pirenena
+Araka ny fampitandreman’ny praiminisitra Sébastien Lecornu, izay nilaza fa mety hiteraka “endrika fampihorohoroana vaovao” izany.
 
-amerikana amin’ny mety hisian’ny fanafihana ao anatin’ny 24 hatramin’ny 48 ora ao afovoan’ny renivohitra irakiana, ary nangataka azy ireo hiala « avy hatrany » ao amin’ilay firenena.
+![alt text](https://img.lemde.fr/2026/04/02/0/0/0/0/994/0/75/0/1ba5bb9_ftp-1-tyu9tsfc4ecp-5661604-01-06.jpg)
+
+“Tsy marina ny milaza fa tsy misy fiantraikany eto amin’ny firenena. Olana lehibe ho an’ny sampan-draharaham-panjakana izany”, hoy izy, sady nanamarika fa nampiakatra ny fiarovana amin’ny toerana fivavahana rehetra ny ministeran’ny atitany mandritra ny faran’ny herinandro Paska.
+
+* ### “MAIKA BE” NY FANOKAFANA NY détroit d’Ormuz
+
+Ny minisitry ny raharaham-bahiny britanika Yvette Cooper dia nanasongadina ny maha-zava-dehibe maika ny fanokafana ity làlan-dranomasina stratejika ity.
+
+* ### NUKLEARY IRANIANA
+
+Ny ambasadaoron’i Iran ao amin’ny AIEA, Reza Najafi, dia nilaza fa tsy naverin’i Iran ny fanatsarana uranium taorian’ny daroka tamin’ny 2025.
+
+* ### Emmanuel Macron MIAMPANGA AN’I Donald Trump
+
+Macron dia niampanga an’i Trump ho manalefaka ny Otan amin’ny alalan’ny famoronana fisalasalana momba ny fanoloran-tenany.
+
+* ### Tsy azo tanterahina ny hetsika miaramila hanokafana ny détroit d’Ormuz
+
+Araka ny filazan’i Emmanuel Macron, izay nilaza fa mety haharitra ela sy mitondra loza maro izany.
+
+* ### Pékin MIAMPANGA AN’I Etats-Unis SY Israël
+
+Nilaza i Pékin fa izy ireo no antony voalohany amin’ny fanakatonana ny détroit d’Ormuz.
+
+* ### Miantso fampitsaharana ady avy hatrany i Pékin
+
+Nilaza fa tsy misy vahaolana ara-miaramila amin’ity fifandonana ity.
+
+* ### Macron: “Tsy tokony hiteny mifanohitra isan’andro”
+
+Nitsikera indray an’i Trump momba ny fomba fifandraisany amin’ny raharaha iraisam-pirenena.
+
+* ### Fifandirana ara-teny eo amin’i Macron sy Trump
+
+Naneho hevitra i Macron taorian’ny fanehoan-kevitra nataon’i Trump momba ny fiainany manokana.
+
+* ### ADY ANY MOYEN-ORIENT: miakatra ny vidin-tsolika, midina ny tsena
+
+Taorian’ny fanambaran’i Trump fa hanamafy ny daroka amin’i Iran.
+
+* ### Donald Trump NILAZA FA NAHAZO FANDRESENA LEHIBE
+
+Nilaza fa efa manakaiky ny tanjona stratejika i Etazonia any Iran.
+
+* ### “Hanafika mafy izahay ao anatin’ny 2–3 herinandro”
+
+Fanambarana nataon’i Donald Trump.
+
+* ### Ny tafika iraniana nampanantena fanafihana mahery
+
+Nilaza fa hitohy ny ady mandra-paharesen’ny fahavalo.
+
+* ### Ny lahatenin’i Trump nampihemotra ny fanantenan’ny tsena
+
+Nampiakatra indray ny vidin-tsolika sy nampidina ny tsena Aziatika.
+
+* ### Iran manameloka ny fitakian’i Etazonia
+
+Nilaza fa tafahoatra sy tsy mitombina izany.
+
+* ### Israël nahasakana balafomanga
+
+Olona efatra no naratra kely.
+
+* ### Hezbollah nanafika tamin’ny roketra sy drôna
+
+Nikendry ny avaratr’i Israël.
+
+* ### TRUMP AMIN’NY FANDRESEN-DAHATRA
+
+Tao anatin’ny lahateny, nanamafy i Trump fa hanohy ny fanafihana mafy an’i Iran ary manindry firenena hafa hanokatra indray ny détroit d’Ormuz.
